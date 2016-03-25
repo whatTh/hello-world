@@ -4,7 +4,7 @@ Emm...Just be fun!
 买家：noideax
 商品：csdn 100积分
 账号：pangaokejiao44
-密码：a7k7zxc8
+密码：a7k7zxc8345
 
 温馨提示：
 1、本账号永久有效，如果有问题，本店100%包售后；
